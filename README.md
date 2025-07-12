@@ -19,6 +19,16 @@ In an age of rampant misinformation, **TruthXtract** stands as a guardian of tru
 </div>
 
 ---
+<img width="2970" height="1365" alt="image" src="https://github.com/user-attachments/assets/d5c45141-c644-411b-9f71-3f1371d188d4" />
+<img width="2506" height="1602" alt="image" src="https://github.com/user-attachments/assets/5300c3b4-7b93-4cf1-a357-0eb9abdcdbea" />
+<img width="2506" height="1666" alt="image" src="https://github.com/user-attachments/assets/8f405a36-1719-445a-a43e-71f0b73f7b06" />
+<img width="2522" height="1636" alt="image" src="https://github.com/user-attachments/assets/e31704aa-20f4-410b-ba12-098e8065a987" />
+<img width="1992" height="1687" alt="image" src="https://github.com/user-attachments/assets/9dfa4fc3-2d01-43c1-8419-d707c9d3fa48" />
+<img width="2911" height="1542" alt="image" src="https://github.com/user-attachments/assets/9312892e-82b5-4b16-b24e-9551f709ffbe" />
+<img width="2123" height="1234" alt="image" src="https://github.com/user-attachments/assets/12ca89da-2cc6-4900-a86c-89c88632e729" />
+
+
+
 
 ## ✨ Key Features
 
